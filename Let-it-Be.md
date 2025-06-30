@@ -1,3 +1,10 @@
+---
+layout: default
+title: let It Be
+---
+
+#Let It Be
+
 When I find myself in times of trouble, Mother Mary comes to me
 Speaking words of wisdom, let it be
 And in my hour of darkness she is standing right in front of me
