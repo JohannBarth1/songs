@@ -1,3 +1,3 @@
 🎶 Songs
 
-1. [Let it Be](Let-it-Be)
+1. [Let it Be](let-it-be)
