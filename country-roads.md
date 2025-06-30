@@ -7,3 +7,14 @@ Take me home, country roads,
 To the place I belong,  
 West Virginia, mountain mama,  
 Take me home, country roads...
+
+Almost heaven, West Virginia,  
+Blue Ridge Mountains, Shenandoah River,  
+
+Life is old there, older than the trees,  
+Younger than the mountains, blowing like a breeze.
+
+Country roads, take me home,  
+To the place I belong,  
+West Virginia, mountain mama,  
+Take me home, country roads...
