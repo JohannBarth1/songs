@@ -1,4 +1,3 @@
-#🎶 Songs
-List of songs for singalong evening
+🎶 Songs
 
-1. [Let it Be](Let-it-Be.md)
+1. [Let it Be](Let-it-Be)
