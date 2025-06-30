@@ -1,6 +1,6 @@
 ---
 layout: default
-title: "What Will We Do With a Drunken Sailor?"
+title: "Drunken Sailor"
 ---
 
 # What Will We Do With a Drunken Sailor?
