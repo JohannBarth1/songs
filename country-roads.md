@@ -3,20 +3,20 @@ layout: default
 title: "Country Roads"
 ---
 
-# Country Roads
+# Take Me Home, Country Roads
 
-Take me home, country roads,  
+Take me 🏠, country roads,  
 To the place I belong,  
-West Virginia, mountain mama,  
-Take me home, country roads...
+West Virginia, 🏔️ mama,  
+Take me 🏠, country roads...  
 
-Almost heaven, West Virginia,  
-Blue Ridge Mountains, Shenandoah River,  
+Almost 🌤️, West Virginia,  
+Blue Ridge Mountains, 🌊 River,  
 
-Life is old there, older than the trees,  
-Younger than the mountains, blowing like a breeze.
+Life is old there, older than the 🌳,  
+Younger than the mountains, blowing like a 🌬️.  
 
-Country roads, take me home,  
+Country roads, take me 🏠,  
 To the place I belong,  
-West Virginia, mountain mama,  
-Take me home, country roads...
+West Virginia, 🏔️ mama,  
+Take me 🏠, country roads...
