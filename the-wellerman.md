@@ -1,11 +1,9 @@
 ---
 layout: default
-title: "Soon May the Wellerman Come"
+title: "The Wellerman"
 ---
 
-# Soon May the Wellerman Come
-
-Here once was a ship that put to sea  
+There once was a ship that put to sea  
 The name of the ship was the Billy O' Tea  
 The winds blew up, her bow dipped down  
 Oh blow, my bully boys, blow (huh)  
