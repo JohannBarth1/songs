@@ -38,26 +38,6 @@ Early in the mornin'
 … Way hay and up she rises  
 Way hay and up she rises  
 Way hay and up she rises  
-Early in the mornin' (whoo!)  
-
-… Stick him in the scupper with a hosepipe on him  
-Stick him in the scupper with a hosepipe on him  
-Stick him in the scupper with a hosepipe on him  
-Early in the mornin'  
-
-… Way hay and up she rises  
-Way hay and up she rises  
-Way hay and up she rises  
-Early in the mornin'  
-
-… Put him in the bed with the captain's daughter  
-Put him in the bed with the captain's daughter  
-Put him in the bed with the captain's daughter  
-Early in the mornin'  
-
-… Way hay and up she rises  
-Way hay and up she rises  
-Way hay and up she rises  
 Early in the mornin'  
 
 … That's what we do with a drunken sailor  
